@@ -1,1 +1,0 @@
-# yuyaroid.github.io
